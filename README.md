@@ -4,4 +4,4 @@
 
 ### Redes
 
-* [Discord[(https://discord.com/invite/B3FaujHRwE)
+* [Discord](https://discord.com/invite/B3FaujHRwE)
